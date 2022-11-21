@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... aprende mas sobre progmação
 - 🌱 I’m currently learning ... jv  reac html    
 - 💞️ I’m looking to collaborate on ... para me ajuda tambem.
-- 📫 How to reach me ...        
+- 📫 How to reach me ... zap (55) 71987161127        
 
 <!---
 Kinhois/Kinhois is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
